@@ -1,1 +1,0 @@
-# Javier_Michelangelo_ttp_static
